@@ -4,7 +4,9 @@ Blood runs thicker than water, so eventually she relented. It may also have been
 
 So Max had tried her best to look the part of a hockey girlfriend. She curled her hair,  twirled a mascara wand through her lashes, bought some press-on nails that looked pretty enough and put them on, and picked out her most glamorous dress. It was her graduation dress from high school, a sleek black dress which she happily picked out to double as a casual going-out dress. But when going out with her friends, the appeal of comfortable tank tops and jeans always won, so it had been sitting in her dorm collecting dust the past few months.
 
-“Max, this is Brandon and his girlfriend Ella.” Max smiled and waved at the girl, whose bright smile immediately changed to confusion. “Oh, this is my sister Max, she’s my plus one.” Aiden quickly explained. Brandon nodded and put his hand around Ella’s waist, prompting her to school her shocked expression and nodding as well. 
+“Max, this is Brandon and his girlfriend Ella.” A couple appeared. They were the typical hockey couple, where the guy was a 5 out of 10 on a good day, and the girl was jaw-droppingly stunning. 
+
+Max quickly took a step away from Aiden and waved at the girl, Ella, whose bright smile immediately changed to confusion. “Oh, this is my sister Max, she’s my plus one.” Aiden quickly explained. Brandon nodded and put his hand around Ella’s waist, prompting her to school her shocked expression and nodding as well. 
 
 She quickly recovered, putting on another smile and asking Max, “Do you go to BU?” 
 
@@ -20,4 +22,4 @@ Max hesitated. The honest answer would be overwhelming. It was a big step up fro
 
 Ella laughed. “I bet!”
 
-This is a test to see if there is paragraph wrapping in GitHub. I really hope there is if not my writing is gonna be quite tough`
+
